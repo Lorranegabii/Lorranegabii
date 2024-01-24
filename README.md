@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Dev Lorrane Gabriele 😁
+## Bem-vindo(a) ao meu perfil 😁
 
  <div>
    <a href="https://github.com/Lorranegabii">
